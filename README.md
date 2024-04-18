@@ -1,0 +1,1 @@
+# PixelFegze-confirmation-d-achat-MSI-NVIDIA-GeForce-RTX-3060-Ventus-2X-12G-OC-Noir
